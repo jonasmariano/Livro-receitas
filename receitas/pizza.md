@@ -11,6 +11,8 @@
 
 - 30 g de sal
 
+Teste do curso
+
 **Utensílios**
 Batedeira Planetária (se não tiver pode ser feito na mão)
 Balança
